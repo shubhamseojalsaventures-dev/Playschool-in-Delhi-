@@ -49,24 +49,24 @@ Cambridge Montessori is one option families can explore when researching early c
 
 Choosing the right playschool in Delhi requires more than comparing fees or facilities. Parents should evaluate teaching practices, classroom experiences, teacher support and safety procedures. A thoughtful school visit can help identify an environment where children feel comfortable, valued and encouraged to learn.
 
-## Frequently Asked Questions
+## Frequently Asked Questions (FAQ's)
 
-### 1. What is the right age to start playschool?
+### Q1. What is the right age to start playschool?
 
-Many children start between two and three years of age, although readiness varies. Parents should consider developmental needs and the school's age eligibility.
+**Ans:** Many children start between two and three years of age, although readiness varies. Parents should consider developmental needs and the school's age eligibility.
 
-### 2. What should parents look for during a school visit?
+### Q2. What should parents look for during a school visit?
 
-Observe teacher interactions, classroom organisation, hygiene, safety arrangements and how children participate in activities.
+**Ans**Observe teacher interactions, classroom organisation, hygiene, safety arrangements and how children participate in activities.
 
-### 3. Is playschool necessary before nursery?
+### Q3. Is playschool necessary before nursery?
 
-Playschool can provide early opportunities for social interaction, communication and familiarity with a school routine, although children's needs differ.
+**Ans**Playschool can provide early opportunities for social interaction, communication and familiarity with a school routine, although children's needs differ.
 
-### 4. How long does it take for a child to adjust to playschool?
+### Q4. How long does it take for a child to adjust to playschool?
 
-Adjustment varies. Some children settle quickly, while others need additional time and reassurance from parents and teachers.
+**Ans:** Adjustment varies. Some children settle quickly, while others need additional time and reassurance from parents and teachers.
 
-### 5. Should parents prioritise facilities or teaching quality?
+### Q5. Should parents prioritise facilities or teaching quality?
 
-Both matter, but the quality of teacher interaction, learning experiences and child supervision deserves particular attention.
+**Ans:** Both matter, but the quality of teacher interaction, learning experiences and child supervision deserves particular attention.
